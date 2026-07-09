@@ -1,0 +1,1 @@
+you do not need to spend a week on POVs, you can start with emailers to test the customer interest [[statusneo]]
