@@ -1,0 +1,4 @@
+- What can we do in 2 months time - Gantt
+- Commercials
+- Case studies for use-cases
+- Connect with need to figure our resourcing and how much additional to add
